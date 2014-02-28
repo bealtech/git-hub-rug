@@ -6,6 +6,6 @@ them and protect our dearest interests.
 By no means were our fruits born out of long labor, or philosophical rigor.
 
 ### I give you the carpet...
-![GaveSpoke Carpet](gave-spoke-rug.png "GaveSpoke Carpet")
+![GaveSpoke Carpet](gave-spoke-rug.jpg "GaveSpoke Carpet")
 
 Beholdith our greatest asset, the Quadradog! In all his glory!!
